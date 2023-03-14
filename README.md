@@ -1,9 +1,4 @@
-### Hi there 👋
-
-<!--
-**A0X0E0L/A0X0E0L** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
+Bienvenido a mi perfil⚡
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
@@ -14,3 +9,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+✔️ Enfocado en nuevos retos y proyectos
+
+🚀 Proactivo y con ganas de aprender cosas nuevas
+
+🌎 Me encanta conocer culturas y personas diferentes
+
+👪👨‍👧‍👦 Amante de los trabajos en equipo
+
+🎸 En mis tiempos libres toco y escucho música
