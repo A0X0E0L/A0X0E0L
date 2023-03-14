@@ -1,20 +1,15 @@
-Bienvenido a mi perfil⚡
+##Bienvenido a mi perfil
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 👯 I’m looking to collaborate on  proyectos  relacionados con mi area de trabajo.
+
+- 📫 How to reach me: ax13xxi@gmail.com
+
 ✔️ Enfocado en nuevos retos y proyectos
 
 🚀 Proactivo y con ganas de aprender cosas nuevas
 
-🌎 Me encanta conocer culturas y personas diferentes
+🌎 Me agrada conocer todo tipo de nuevas personas, es la única forma de hacer nuevos contactos.
 
-👪👨‍👧‍👦 Amante de los trabajos en equipo
 
-🎸 En mis tiempos libres toco y escucho música
+👪👨‍👧‍👦 Considero que trabajar en equipo es la forma en la que se pueden lograr grandes descubrimiento en pro de l a humanidad, es como la linea recta para recorrer más rápido calquier distania.
+🎸 En mis tiempos libres salgo a correr, es algo que realmente me encanta, desde joven ha sido para mi  un  método liberador de estrés.
